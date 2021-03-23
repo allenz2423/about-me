@@ -14,7 +14,7 @@ I go to the [Highschool of Telecommunications Arts and Technology](https://hstat
 8. Global History
 ---
 ## My Hobbies Are
-* Gaming
+* Gaming with freinds
 * Mechanical Keyboards
 * Building Computers
 * Coding
